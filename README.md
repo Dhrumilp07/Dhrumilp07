@@ -5,10 +5,6 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=dhrumilp07" alt="dhrumilp07" /></a> </p>
 
-- 🔭 I’m currently working on **Student Database Management**
-
-- 🌱 I’m currently learning **UI/UX**
-
 - 👨‍💻 All of my projects are available at [https://sites.google.com/view/dhrumiilp/home](https://sites.google.com/view/dhrumiilp/home)
 
 - 📫 How to reach me **dhrumiljp07@gmail.com**
