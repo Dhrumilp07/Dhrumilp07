@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://sites.google.com/view/dhrumiilp/home](https://sites.google.com/view/dhrumiilp/home)
 
-- 📫 How to reach me **dhrumiljp07@gmail.com**
+- 📫 How to reach me **iamdhrumilpatel@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16C4O2q1nKWdpkj_MvTl9dcHIf9KUxr_S/view?usp=sharing](https://drive.google.com/file/d/16C4O2q1nKWdpkj_MvTl9dcHIf9KUxr_S/view?usp=sharing)
 
