@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **iamdhrumilpatel@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1olnO9ukmpv4qyn4k2cKP1v4GLBTPRWAA/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1DW0BonI2QEVKztABLa2P-8XyWCk3aLPO/view?usp=sharing)
 
 - ⚡ Fun fact **I like to play video games a lot 😁**
 
